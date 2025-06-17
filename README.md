@@ -26,4 +26,3 @@ Also building [Cheers VC](https://www.cheers.vc) and [Byougle](https://www.byoug
 
 ⚡ Fun Fact: I invest in founders, train BJJ 7x/week, and lose in ping pong to my father-in-law.
 
--->
